@@ -12,8 +12,8 @@ Many Developpers are using copyrighted material which could cause them problems 
 ######*And other corporations which own copyright over pokemon material
 ## Contact us
 
-*![On Discord](https://discord.gg/x3faacm)*
+*[On Discord](https://discord.gg/x3faacm)*
 
 ## Credits
 
-Design inspiration comes from *![Mitchleo](https://imgur.com/a/K96Nu)* 
+Design inspiration comes from *[Mitchleo](https://imgur.com/a/K96Nu)*
