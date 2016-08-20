@@ -22,7 +22,6 @@ Design inspiration comes from *[Mitchleo](https://imgur.com/a/K96Nu)*
 ## Legal
 
 ###I do not own trademark or Copyright over Nintendo™ nor Pokemon™ and don't represent Nintendo of America** nor am I related to them in any way. 
-
 ######*And other corporations which own copyright/trademarks over Pokemon™ material
 
 ####However, I am not infringing copyright as a Canadian citizen according to [Canadian Copyright laws](http://laws-lois.justice.gc.ca/PDF/C-42.pdf) and [Canadian Trademark laws](http://laws-lois.justice.gc.ca/PDF/T-13.pdf) as this is [Non-commercial user-generated content](http://laws-lois.justice.gc.ca/PDF/C-42.pdf#enID0EHJAG) and is not [made in a manner as to depreciate the value of the goodwill of the trademark](http://laws-lois.justice.gc.ca/PDF/T-13.pdf#page=32&zoom=auto,-13,552).
