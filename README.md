@@ -17,6 +17,7 @@ Many Developers are using copyrighted material which could cause them problems w
 ## Credits
 
 Design inspiration comes from *[Mitchleo](https://imgur.com/a/K96Nu)*
+
 Design for 001-003 was made by HubertVorm.
 
 ## Legal
